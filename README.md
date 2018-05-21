@@ -1,1 +1,0 @@
-# qcyas.github.io
